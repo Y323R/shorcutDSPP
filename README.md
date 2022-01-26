@@ -1,0 +1,2 @@
+# shorcutDSPP
+(c) JS DISPAPELES
